@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/6boz10.png)
+![](https://files.catbox.moe/p4qn5n.png)
 
 　૮꒰ྀི　𝙙𝙖𝙫𝙚　𝙨𝙮𝙨𝙩𝙚𝙢　◡◡　[𝙧𝙚𝙖𝙙 𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/knightofhour)　⊃
 
@@ -6,4 +6,4 @@
 
   　(ノ﹏ヽ)　𝙩𝙧𝙖𝙣𝙨𝙢𝙖𝙨𝙘𝙪𝙡𝙞𝙣𝙚 𝙖𝙘𝙝𝙞𝙡𝙡𝙚𝙖𝙣　𝙖𝙪𝙙𝙝𝙙
 
-![](https://files.catbox.moe/wdr3b3.png)
+![](https://files.catbox.moe/0y5n8c.png)
